@@ -1,1 +1,1 @@
-ibnu ganteng
+dasar ayank dia
